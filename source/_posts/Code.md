@@ -9,3 +9,5 @@ tags:
 呦呦鹿鸣，食野之蒿。我有嘉宾，德音孔昭。视民不恌，君子是则是效。我有旨酒，嘉宾式燕以敖。
 
 呦呦鹿鸣，食野之芩。我有嘉宾，鼓瑟鼓琴。鼓瑟鼓琴，和乐且湛。我有旨酒，以燕乐嘉宾之心。
+
+<img src="http://ooutwp5od.bkt.clouddn.com/Masami%20Nagasawa%20.jpeg" title="Masami Nagasawa" />
